@@ -1,2 +1,5 @@
 # dino
-i wrote a long description once but i don't want to do it again
+what is love
+baby don't hurt me
+don't hurt me
+no more
